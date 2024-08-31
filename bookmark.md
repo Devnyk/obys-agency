@@ -1,2 +1,2 @@
-last video - 
-last time - 
+last video - 1
+last time - 1hr 8min
